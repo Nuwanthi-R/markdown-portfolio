@@ -1,2 +1,2 @@
 # Nuwanthi Rajapaksha
-  ###  Sabaragamuwa University of Srilanka
+  ### Sabaragamuwa University of Srilanka
